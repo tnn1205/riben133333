@@ -22,4 +22,4 @@
 
 如果你正在寻找一个既强大又干净的看片平台，现在就是最好的时机。收藏成人羞羞免费平台，开启你专属的2025年日本AV探索之旅，精彩每一天，尽在掌握中！
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/tnn1205/riben133333 ）</span> 
